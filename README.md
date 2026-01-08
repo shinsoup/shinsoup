@@ -18,4 +18,4 @@
                           
 <p align="center"> ╰─..★.────────────────────╯ </p>
 
-<p align="center"> pls read strawpage for more info before interacting . . . </p>
+<p align="center"> pls read ext rentry for more info before interacting . . . </p>
