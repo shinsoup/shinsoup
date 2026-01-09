@@ -14,7 +14,7 @@
 
 <p align="center"> ╭────────────────────.★..─╮ </p>
 
-　　　　　　　　　　　　　　　　　　　　　　　　　 .　![](https://komarev.com/ghpvc/?username=wurugashikai&color=c7597c)　.
+　　　　　　　　　　　　　　　　　　　　　　　　　 .　![](https://komarev.com/ghpvc/?username=wurugashikai&color=54d1c9)　.
                           
 <p align="center"> ╰─..★.────────────────────╯ </p>
 
