@@ -1,6 +1,6 @@
 <p align="center"> ⋆⁺｡˚⋆˙‧₊☽ ◯ ☾₊‧˙⋆˚｡⁺⋆ </p>
 
-　　　　　　　　　　　　　　　　　 ![](https://i.pinimg.com/originals/de/9c/9f/de9c9fa01ed1fef7a10ac57939a1521c.gif)
+　　　　　　　　　　　　　　　 ![](https://i.pinimg.com/originals/de/9c/9f/de9c9fa01ed1fef7a10ac57939a1521c.gif)
 
 <p align="center"> c + h ok w/ any unless stated otherwise . </p>
 <p align="center"> pls do not copy or take inspo unless we're close friends . </p>
@@ -20,4 +20,4 @@
                           
 <p align="center"> ╰─..★.────────────────────╯ </p>
 
-　　　　　　　　　　　　　 ![](https://i.pinimg.com/originals/d0/b6/b9/d0b6b92ec570ba18ac4565ba54c12f52.gif)
+　　　　　　　　　　　 ![](https://i.pinimg.com/originals/d0/b6/b9/d0b6b92ec570ba18ac4565ba54c12f52.gif)
