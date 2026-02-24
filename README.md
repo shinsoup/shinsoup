@@ -6,7 +6,7 @@
 <p align="center"> pls do not copy or take inspo unless we're close friends . </p>
 <p align="center"> usually offtab/busy, whisp to interact preferrably . </p>
 <p align="center"> do not assume i ship the characters just bc im sitting with someone . </p>
-<p align="center"> pls avoid covering me unless we're close friends, i will move . </p>
+<p align="center"> pls int if we share fandom interests (especially naruto) i love making friends . </p>
 
 <p align="center"> .・。.・゜✭・.・✫・゜・。. </p>
 
